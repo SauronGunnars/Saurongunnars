@@ -6,7 +6,6 @@
 
 - 📫 How to reach me **sara.gunnars@iths.se**
 
-- 📄 Know about my experiences [here](https://cvkungen.se/r/Aj34HrBM5)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
